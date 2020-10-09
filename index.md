@@ -4,7 +4,7 @@
 
 [YouTube](https://www.youtube.com/channel/UCrcT65ox1qC9ybbvMB62KnQ)
 
-[%click% = $$$](https://media0.giphy.com/media/KecDcIs9qrqennrxGQ/source.gif)
+[%click% = $$$](https://giphy.com/gifs/KecDcIs9qrqennrxGQ/html5)
 
 
 
