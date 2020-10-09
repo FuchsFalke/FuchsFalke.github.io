@@ -2,23 +2,7 @@
 
 ### YouTube
 
-```markdown
-[Youtube](https://www.youtube.com/channel/UCrcT65ox1qC9ybbvMB62KnQ).
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
+[YouTube](https://www.youtube.com/channel/UCrcT65ox1qC9ybbvMB62KnQ).
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
