@@ -26,3 +26,11 @@ There you can see pictures like this😉
 ![41b3zsiq4pL _AC_UL600_SR600,600_(3)](https://user-images.githubusercontent.com/72512011/95673040-868f9c00-0ba5-11eb-91c4-fca4ce8a3c68.jpg)
 
 [TikTok](https://www.tiktok.com/@fuchsfalke?lang=de)  (<– 1.400 Follower🙂)
+
+### Random
+
+![kjo4e6g61fs51(1)](https://user-images.githubusercontent.com/72512011/95687732-c7b79880-0c05-11eb-8713-dc497d6f3892.png)
+
+```random
+🤔🤔🤔 🤷‍♂️ Ok 👍
+```
