@@ -18,3 +18,7 @@ Yes it ist a Test ☝
 ![Download (3) (2)](https://user-images.githubusercontent.com/72512011/95657778-990ec480-0b16-11eb-9ff1-f86397dd3ffc.jpg)
 
 [Instagram](https://www.instagram.com/fuchsfalke2)  (<– from me😄)
+
+![41b3zsiq4pL _AC_UL600_SR600,600_(3)](https://user-images.githubusercontent.com/72512011/95673040-868f9c00-0ba5-11eb-91c4-fca4ce8a3c68.jpg)
+
+[TikTok](https://www.tiktok.com/@fuchsfalke?lang=de)  (<– 1.400 Follower🙂)
